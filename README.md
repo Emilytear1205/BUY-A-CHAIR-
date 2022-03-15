@@ -1,11 +1,12 @@
 # 千元辦公椅好康推薦
 
+2022/03/15 更新版
 
-1. Peachy Life 完美主義 高背頭靠D扶手電腦椅 $ 1820 NT
+1. Peachy Life 完美主義 高背頭靠D扶手電腦椅  $ 1820 NT   ---(YAHOO 購物中心，多款顏色，但價錢較昂貴)
 
 [Peachy Life 完美主義 高背頭靠D扶手電腦椅官方連結](https://tw.buy.yahoo.com/gdsale/Home-Feeling-%E9%9B%BB%E8%85%A6%E6%A4%85-D%E6%89%B6%E6%89%8B-%E5%8A%A0%E5%A4%A7%E8%85%B0%E6%9E%95-6658018.html)
 
-沉穩的黑色以及灰色適合學校辦公室給人的感覺
+不論是沉穩的黑、灰色，活力又不會過於顯眼的藍色也是很好的考慮
 
 <div align="center">
 <center class ="half">
