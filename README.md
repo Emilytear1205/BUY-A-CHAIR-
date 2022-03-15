@@ -7,13 +7,13 @@
 
 沉穩的黑色以及灰色適合學校辦公室給人的感覺
 
-![]("https://s.yimg.com/zp/MerchandiseImages/66A3D4B2D0-Product-17923570.jpg")
+![](https://s.yimg.com/zp/MerchandiseImages/66A3D4B2D0-Product-17923570.jpg)
 
 
 2. 提攜高背腰枕透氣網D型扶手電腦椅 $ 1399 NT
 
 [提攜高背腰枕透氣網D型扶手電腦椅官方連結](https://www.chlife.com.tw/SalePage/Index/7478757?lang=zh-TW)
 
-3. Peachy Life 完美主義 洛伊頭靠T扶手(PU枕)6色 $ 1890 NT
+3. Peachy Life 完美主義 洛伊頭靠T扶手(PU枕)6色 $ 1780 NT
 
-[Peachy Life 完美主義 洛伊頭靠T扶手(PU枕)6色官方連結](https://www.peachy.com.tw/SalePage/index/2663287)
+[Peachy Life 完美主義 洛伊頭靠T扶手(PU枕)6色官方連結]https://www.peachy.com.tw/SalePage/Index/3984961?lang=zh-TW)
