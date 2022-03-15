@@ -20,6 +20,6 @@
 
 [提攜高背腰枕透氣網D型扶手電腦椅官方連結](https://www.chlife.com.tw/SalePage/Index/7478757?lang=zh-TW)
 
-3. Peachy Life 完美主義 洛伊頭靠T扶手(PU枕)6色 $ 1780 NT
+3. Peachy Life 完美主義 洛伊頭靠T扶手(PU枕)6色 $ 1780 NT ---  Peachy Life 完美主義 官網商品，此購買連結有可能無效，有需求得將名字複製貼上搜尋引擎
 
 [Peachy Life 完美主義 洛伊頭靠T扶手(PU枕)6色官方連結]https://www.peachy.com.tw/SalePage/Index/3984961?lang=zh-TW)
