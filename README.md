@@ -8,7 +8,7 @@
 
 2. Peachy Life 完美主義 洛伊頭靠T扶手(PU枕)6色 $ 1780 NT   ---Peachy Life 完美主義 官網商品，最新價格已經比YAHOO還便宜，此購買連結有可能無效，有需求得將名字複製貼上搜尋引擎
 
-[Peachy Life 完美主義 洛伊頭靠T扶手(PU枕)6色官方連結]https://www.peachy.com.tw/SalePage/Index/3984961?lang=zh-TW)
+[Peachy Life 完美主義 洛伊頭靠T扶手(PU枕)6色官方連結](https://www.peachy.com.tw/SalePage/Index/3984961?lang=zh-TW)
 
 除了沉穩的黑、灰色，活力又不會過於顯眼的藍色也是很好的考慮
 
