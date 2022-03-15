@@ -7,8 +7,13 @@
 
 沉穩的黑色以及灰色適合學校辦公室給人的感覺
 
-![](https://s.yimg.com/zp/MerchandiseImages/66A3D4B2D0-Product-17923570.jpg)
-
+<div align="center">
+<center class ="half">
+    <img src="https://s.yimg.com/zp/MerchandiseImages/3ACAD708A2-Product-17923569.jpg" width = "500"/ height = "600"/>
+    <img src="https://s.yimg.com/zp/MerchandiseImages/66A3D4B2D0-Product-17923570.jpg" width = "500"/ height = "600"/>
+    <img src="https://s.yimg.com/zp/MerchandiseImages/98E3FAB915-Product-17923573.jpg" width = "500"/ height = "600"/>
+</center>
+</div>
 
 2. 提攜高背腰枕透氣網D型扶手電腦椅 $ 1399 NT
 
