@@ -25,6 +25,6 @@
 [提攜高背腰枕透氣網D型扶手電腦椅官方連結](https://www.chlife.com.tw/SalePage/Index/7478757?lang=zh-TW)
 <div align="center">
 <center class ="half">
-    <img src="https://www.chlife.com.tw/SalePage/ShowImageListV2?salePageId=7478757" width = "300"/ height = "300"/>
+    <img src="https://diz36nn4q02zr.cloudfront.net/webapi/imagesV3/Original/SalePage/7478757/0/637817258329170000?v=1" width = "300"/ height = "300"/>
 </center>
 </div>
